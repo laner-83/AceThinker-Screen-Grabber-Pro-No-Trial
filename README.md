@@ -1,0 +1,1 @@
+# AceThinker-Screen-Grabber-Pro-No-Trial
